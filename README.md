@@ -36,3 +36,4 @@
 - https://www.linkedin.com/in/samuel-neri-b8841b18a
 - https://www.linkedin.com/in/vitordeaguiar/
 - https://www.linkedin.com/in/samuelneves-bg/
+- https://www.linkedin.com/in/lucas-da-silva-rezende-4570a113a/
