@@ -37,3 +37,4 @@
 - https://www.linkedin.com/in/vitordeaguiar/
 - https://www.linkedin.com/in/samuelneves-bg/
 - https://www.linkedin.com/in/lucas-da-silva-rezende-4570a113a/
+- https://www.linkedin.com/in/anavictoria-gomes/
